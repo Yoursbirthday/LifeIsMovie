@@ -1,8 +1,7 @@
 # LifeIsMovie
-# Story Writing.
+# Story Writing. Sorry the birthday theme is no longer existed here.
 
-**Sorry the birthday theme no more exist here, because of the session expire. Contact admin of the page.
-This is the page where I am Writing my stories. Dated- 23 October 2026.**
+**Story by Me. "Cruel Mathematics of LOVE"*
 There is something humiliating in crying before another human being.
 
 Not because tears are shameful—no, tears are perhaps the last honest thing a man possesses—but because, when you cry before someone you love, you are placing the ugliest and most helpless part of yourself into their hands. You are saying, without saying it: Look at me. I am hurt. I cannot carry this alone anymore. Please, for once, understand me.
