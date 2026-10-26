@@ -2,6 +2,7 @@
 # Story Writing. Sorry the birthday theme is no longer existed here.
 
 **Story by Me. "Cruel Mathematics of LOVE"*
+
 There is something humiliating in crying before another human being.
 
 Not because tears are shameful—no, tears are perhaps the last honest thing a man possesses—but because, when you cry before someone you love, you are placing the ugliest and most helpless part of yourself into their hands. You are saying, without saying it: Look at me. I am hurt. I cannot carry this alone anymore. Please, for once, understand me.
